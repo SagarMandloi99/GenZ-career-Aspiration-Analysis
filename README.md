@@ -1,0 +1,1 @@
+Utilized data analysis and visualization techniques to explore the career aspirations of GenZ. Developed a comprehensive report highlighting key findings and actionable insights. Demonstrated proficiency in data-driven decision-making and effective communication of complex information.
